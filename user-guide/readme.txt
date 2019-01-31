@@ -1,1 +1,0 @@
-Ini risda sedang coba mengedit txt
